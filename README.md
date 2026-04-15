@@ -39,7 +39,7 @@ Saya ingin berkembang menjadi IT Support profesional yang mampu menangani berbag
 📫 Kontak
 
 - Email: (zaldihilmawan15@gmail.com)
-- LinkedIn: (https://www.linkedin.com/in/zaldi-hilmawan)
+- LinkedIn: (https://www.linkedin.com/in/zaldi-hilmawan-045188360?utm_source=share_via&utm_content=profile&utm_medium=member_android)
 - Instagram: zaldi._11
 
 ---
